@@ -1,0 +1,3 @@
+- watching animate
+- reading book
+- talking to friends
